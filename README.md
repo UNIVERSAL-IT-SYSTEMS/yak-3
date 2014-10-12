@@ -22,5 +22,8 @@
 
 [Мотор ВК-105](http://www.airpages.ru/mt/m105_klimov.shtml)
 
+[Мотор ВК-105](http://walkarounds.airforce.ru/avia/rus/engines/m-105r/index.htm)
+
 ![Мотор ВК-105](http://www.airpages.ru/mt/m105_1.jpg)
+
 ![Реальные цвета ВК-105](http://s020.radikal.ru/i717/1303/23/0a4283d18405.jpg)
