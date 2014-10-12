@@ -11,3 +11,7 @@
 [hyperscale.com](http://hyperscale.com/2007/features/yak3rf_1.htm)
 
 [yaplakal.com](http://www.yaplakal.com/forum2/topic853607.html)
+
+### Cabin
+
+![alt text](http://s00.yaplakal.com/pics/pics_original/2/2/1/3524122.jpg)
